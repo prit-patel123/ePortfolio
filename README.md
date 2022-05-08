@@ -8,11 +8,11 @@
  based on my research on cyberbullying. Which included various problems and solutions.
  
 **3.** Work effectively as part of a team.
-- As a team member, there were very few moments as being part of a team to make report based on the artical. 
+- As a team member, there were very few moments as being part of a team to make report based on the article. 
 
 **4.** Communicate effectively in a professional context.
 - During my english learning course i took part in seminar discussion in which i considered basic and proffessional communication context.
 
 **5.** Define and demonstrate conflict management and resolution strategies.
-- During this term i was studying in the unit called proffesional communication Skills for ICT in which i performed a [conflict management](https://github.com/prit-patel123/eportfolio/files/8646930/Week5.Conflict.Scenario.docx)
- stratergies with my team member.
+- During this term i am studying in the unit called proffesional communication Skills for ICT in which i performed a [conflict management](https://github.com/prit-patel123/eportfolio/files/8646930/Week5.Conflict.Scenario.docx)
+ stratergies activity with my team member.
