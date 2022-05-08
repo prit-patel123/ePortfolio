@@ -16,3 +16,4 @@
 **5.** Define and demonstrate conflict management and resolution strategies.
 - During this term i was studying in the unit called proffesional communication Skills for ICT in which i performed a [conflict management](https://github.com/prit-patel123/eportfolio/files/8646930/Week5.Conflict.Scenario.docx)
  stratergies with my team member.
+
